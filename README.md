@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I am an enthusiastic and dedicated leader who is constantly seeking to understand the intricacies of what, why, and how things work. My objective is to establish an environment that fosters high employee morale while prioritizing safety and compliance. I have the ability to create a welcoming atmosphere while effectively guiding and motivating employees to successfully accomplish demanding and crucial tasks. I am always prepared to undertake any necessary assignment in order to ensure the prosperity of the company. As a meticulous worker, I find value in paying attention to the smallest details. When devising innovative solutions, I always prioritize efficiency and effectiveness.
+
+- 🔭 I’m currently working on completing the NLR Tech Elevator Bootcamp
+- 🌱 I’m currently learning Javascript
+- 👯 I’m looking to collaborate on Everything!
+- 💬 Ask me about my history with performing.
+- 📫 How to reach me: xx.rani.saleh.xx@hotmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am deaf in one ear!
